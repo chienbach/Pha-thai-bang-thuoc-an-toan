@@ -1,5 +1,5 @@
 <p>20 dấu hiệu mang thai trong tuần trước hết có tỷ lệ chuẩn xác nhất<br />
-Nếu như bạn có 20 <em><strong><a href="http://phongkhamthaiha.com/trieu-chung-dau-hieu-mang-thai-102283.html">triệu chứng mang thai</a></strong></em> tuần ban đầu dưới đây thì bạn cần phải đi mua que thử thai về thử để xác định tin vui nhé!</p>
+Nếu như bạn có 20 <em><strong>triệu chứng mang thai</strong></em> tuần ban đầu dưới đây thì bạn cần phải đi mua que thử thai về thử để xác định tin vui nhé!</p>
 
 <p>Chị em thường Tùy thuộc vào việc chậm kinh để cảm thấy khả năng có thai của bản thân, nhưng thực ra, trễ kinh không phải là triệu chứng mang bầu kịp thời nhất trong tuần đầu tiên.<br />
 dưới đây, các chuyên gia trung tâm y tế Thái Hà sẽ bật mí một số triệu chứng mang thai trong tuần đầu.<br />
