@@ -1,31 +1,30 @@
-<p>20 dấu hiệu mang thai trong tuần trước hết có tỷ lệ chuẩn xác nhất<br />
-Nếu như bạn có 20 <em><strong>triệu chứng mang thai</strong></em> tuần ban đầu dưới đây thì bạn cần phải đi mua que thử thai về thử để xác định tin vui nhé!</p>
 
-<p>Chị em thường Tùy thuộc vào việc chậm kinh để cảm thấy khả năng có thai của bản thân, nhưng thực ra, trễ kinh không phải là triệu chứng mang bầu kịp thời nhất trong tuần đầu tiên.<br />
-dưới đây, các chuyên gia trung tâm y tế Thái Hà sẽ bật mí một số triệu chứng mang thai trong tuần đầu.<br />
-Nếu bạn bị trễ kinh đi kèm các dấu hiệu mang bầu bài viết này thì bạn có thể chắc hẳn về sự xuất hiện của sinh linh bé nhỏ trong cơ thể chính mình Rồi đó:</p>
 
-<h2><img alt="" src="http://phongkhamthaiha.com/media/images/dau-hieu-mang-thai-tuan-dau-tien.jpg" style="height:250px; width:400px" /><br />
-20 biểu hiện có bầu sớm nhất trong tuần trước hết</h2>
 
-<p><strong>1. Khí hư rối loạn, có lẫn với một chút máu là dấu hiệu có bầu tuần đầu</strong><br />
-Khi phôi thai di chuyển vào tử cung, chúng sẽ cấy ghép vào niêm mạc tử cung, niêm mạc tử cung bong ra dẫn đến hiện tượng xung huyết.<br />
-thấy máu báo thai là biểu hiện mang thai sớm, có khoảng 20% phụ nữ mắc phải hiện tượng này.<br />
-Hiện tượng chảy máu hay bị quá nhiều trường hợp nhầm tưởng là kỳ kinh tới sớm. Nhưng mà, máu báo thai và máu kinh nguyệt hoàn toàn không giống nhau. Máu báo thai chỉ là một vệt máu nhỏ, có màu nhạt hơn thông thường và chỉ ra trong 1-2 ngày.<br />
-<strong>2. Khí hư biến đổi là biểu hiện có thai</strong><br />
-Khi phôi thai tiến hành tổ trong tử cung, đặc tính dưỡng chất dịch tiết âm đạo sẽ mất cân bằng, chuyển thành màu trắng đặc và đục. Đây là cơ chế tự giữ an toàn phôi thai của cơ thể, chống lại sự xâm nhập thêm của tinh trùng vào tử cung.<br />
-tuy nhiên, nếu dịch âm đạo của bạn biến đổi theo hướng xấu, ra nhiều và đổi màu (vàng, xanh hoặc lẫn máu), kết hợp với mùi không dễ chịu thì có thể bạn bị nhiễm trùng và cần thiết phải đi khám bác sĩ.<br />
+
+
+
+
+
+
+
+
+
+
 <strong>3. Chuột rút</strong><br />
-Chuột rút là biểu hiện có thai lâu ngày từ tuần ban đầu cho tới suốt thai kì.<br />
-nhân tố diễn ra chuột rút là do tử cung của bạn phát triển, kéo dãn và chèn ép lên các mao mạch phần dưới. Khi đứa trẻ phát triển, bụng của bạn sẽ ngày một lớn hơn, gây ra áp lực cho nửa thân dưới.<br />
+
+
+
+
+
+
+
 <strong>4. Nhiệt độ cơ thể nâng cao</strong><br />
-Khi có bầu, hormone progesterone trong cơ thể sẽ tiết ra rất nhiều hơn, thân nhiệt gia tăng từ 0,3C &ndash; 0,5C không khác như trong một số ngày trứng rụng. Vì vậy, mẹ bầu hay có nhiệt độ cơ thể cao hơn so với trường hợp bình thường.<br />
-<strong>5. Sự thay đổi của ngực</strong><br />
-một trong số những biểu hiện có thai tuần đầu rõ nhất là sự rối loạn ở phần ngực. Sự điều chỉnh này bao gồm:<br />
-số lượng máu đưa đến cho ngực tăng khiến cho bạn có cảm giác nóng ran xung quanh núm vú.<br />
+
+
+
 kích cỡ vòng một cải thiện song bạn sẽ không xuất hiện vui về Việc đó, vì nó còn bên cạnh cảm giác sưng và đau.<br />
 Bạn cũng sẽ có cảm giác nghiêm trọng và tức ngực, vùng da lân cận đầu ngực trở nên thâm đen&hellip;<br />
-một số dấu hiệu này chỉ xuất hiện thời kỳ đầu do sự biến đổi của hormone. Chúng sẽ tan biến trong một số tuần đầu nếu như bạn đã quen với cảm giác này.<br />
 <strong>6. Mắc phải rôm xảy</strong><br />
 thân nhiệt tăng lên khiến cho da của bạn không thoát mồ hôi kịp. Bạn đời dễ mắc phải rôm xảy, xuất hiện tập trung tại các nếp gấp hoặc vùng da rất hay ma sát với quần áo.<br />
 <strong>7. Mệt mỏi</strong><br />
